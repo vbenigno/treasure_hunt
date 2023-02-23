@@ -41,5 +41,5 @@ XI.   Any man deserting the ship in battle or rewriting history on the
   above, so you get your fair share of the prize!
 
 Captain      : Valentina Benigno  
-Quartermaster: NAME HERE  
+Quartermaster: Agnieszka Pawlowska  
 First mate   : Noel Frey  
